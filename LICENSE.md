@@ -1,4 +1,4 @@
-
+smart Scripts for anime card collection offers the most advanced anime card collection Script, with auto-sell and one-hit kill. Perfect for
 
 
 
